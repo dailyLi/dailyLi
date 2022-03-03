@@ -1,5 +1,5 @@
 ### Hi there 👋 I'm Zhaotian 
-(call me "Daily" if you find it hard to pronounce)
+(call me Daily if you find it hard to pronounce)
 
 - 👩‍🎓‍ Master of Information @ University of Toronto | MBA @ Rochester Institute of Technology
 - 🌱 7 years experience in startups as marketing & operation lead
